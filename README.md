@@ -26,7 +26,7 @@ Me encantaría participar en proyectos donde pueda aportar valor mientras sigo a
 ## 🚀 ¿Qué estoy buscando?
 
 ### 🎯 Mi objetivo:
-- Contribuir en proyectos que **me reten** y me permitan desarrollar soluciones innovadoras.  
+- Contribuir en proyectos que **me reten** y me diviertan.  
 - Rodearme de **personas talentosas** con las que pueda colaborar y aprender.  
 - Enfrentar desafíos complejos que impulsen mi crecimiento profesional.
 
@@ -74,7 +74,7 @@ No dudes en explorar mis repositorios o contactarme para iniciar una conversaci�
 Estoy deseando embarcarme en **nuevas aventuras tecnológicas** y colaborar en proyectos emocionantes. 🚀
 
 
-
+😉 ¡¡ Hasta pronto!!
 
 
 
